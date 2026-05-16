@@ -18,7 +18,15 @@
   <li>Partite gratuite illimitate.</li>
 </ul>
 
-# 🔴🔴 **[👉 Clicca Qui per Scaricare i Trucchi per Burraco Italiano la sfida](https://rebrand.ly/MobManiaDev)** 🔴🔴
+<div align="center">
+
+<h1>
+<a href="https://shr.pn/mobmaniadev">
+🫵🫵 CLICCA QUI PER SCARICARE I TRUCCHI 🫵🫵
+</a>
+</h1>
+
+</div>
 
 <p>Queste risorse sono fondamentali per avanzare rapidamente nel gioco, partecipare a tornei, ottenere punteggi più alti e sbloccare funzionalità che altrimenti richiederebbero ore di gioco o spese in denaro reale. Grazie ai <strong>trucchi per Burraco Italiano la sfida</strong>, tutto questo sarà finalmente possibile con pochi semplici passaggi.</p>
 
@@ -89,4 +97,12 @@
 
 <p>Non perdere l’opportunità di scaricare i trucchi più efficaci disponibili online. Inizia ora e cambia per sempre il tuo modo di giocare a Burraco!</p>
 
-# 🔴🔴 **[👉 Clicca Qui per Scaricare i Trucchi per Burraco Italiano la sfida](https://rebrand.ly/MobManiaDev)** 🔴🔴
+<div align="center">
+
+<h1>
+<a href="https://shr.pn/mobmaniadev">
+🫵🫵 CLICCA QUI PER SCARICARE I TRUCCHI 🫵🫵
+</a>
+</h1>
+
+</div>
